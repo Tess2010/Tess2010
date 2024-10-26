@@ -6,7 +6,7 @@
 - 😄 Pronouns: Her/She
 - ⚡ My Favorite Sayings:
 - "A mistake is never a mistake if you learn from it, as it has now become a lesson"
-- "Always treat other how you want them to treat you"
+- "Always treat others how you want them to treat you"
 - "I am perfectly IMPERFECT"
 
 <!---
