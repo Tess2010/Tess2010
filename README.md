@@ -2,7 +2,7 @@
 - 👀 I’m interested in cooking, reading, dancing and learning new languages
 - 🌱 I’m currently learning coding and spanish 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me via Discord @ teresita67 or Instagram @ _blu_eyes_10
 - 😄 Pronouns: Her/She
 - ⚡ My Favorite Sayings:
 - "A mistake is never a mistake if you learn from it, as it has now become a lesson"
