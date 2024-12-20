@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Tess2010
-- 👀 I’m interested in cooking, reading, dancing and learning new languages
-- 🌱 I’m currently learning coding and spanish 
+- 👀 I’m interested in cooking, reading, dancing, learning new languages and of course coding
+- 🌱 I’m currently studying HTML, CSS, NodeJS, SQL and spanish 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me via Discord @ teresita67 or Instagram @ _blu_eyes_10
+- 📫 You can reach me via 
 - 😄 Pronouns: She/Her
 - ⚡ My Favorite Sayings:
 --- "A mistake is never a mistake if you learn from it, as it has now become 
